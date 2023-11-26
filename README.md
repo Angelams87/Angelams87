@@ -1,0 +1,16 @@
+- 👋 Hi, I’m @Angelams87
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+Angelams87/Angelams87 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+
+
+no% of I'm am 13....<<6138>> X1243X ...
+N/A
+$ $$$ $$ $$$$...¿♤♧¡
+riddle me that batman...jog your memory a little
